@@ -15,12 +15,14 @@
 - Continue prepping meals at the beginning of the week to eliminate etra work during the week.
 - Find healthy snacks to eat while working to provide good clean energy.
 -  Plan ahead and make sure to reschedule any doctor appointment that falls during a school week. Schedule any future appointments during break weeks. 
+- Give myself 1 day a week to take a break from everything. Rest, relax, and recharge my batteries. 
 
 ## New strategies to try
 
 - Set a timer when doing an activity. It is easy to lose a lot of time stuck. 
 - Make my desk environment more comfortable by finding a new computer chair, new desk, and another monitor. 
-- Reflect on my work. Review areas that can be improved. Find shortcuts that increase my efficiency while working. 
+- Reflect on my work. Review areas that can be improved. Find shortcuts that will increase my efficiency while working. 
+- BE BOLD! Reach out to all of my cohort mates. Make connections. They are all now a part of my network, and therefore I need to work to grow and maintain these relationships.
 
 
 
